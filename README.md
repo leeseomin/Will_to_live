@@ -2,10 +2,17 @@
 
 
 
+### Will to live I 1-5
+
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/1_5.png" width="2000">    
+
+  <br/>  <br/> 
+  
 
 ### Will to live 1
 
-<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/1.png" width="2000">    
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/1A.png" width="2000">    
 
   <br/>  <br/> 
   
