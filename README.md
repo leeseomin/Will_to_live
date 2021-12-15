@@ -52,6 +52,13 @@
   <br/>  <br/> 
 
 
+### Will to live 7
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/7.png" width="2000">    
+
+  <br/>  <br/> 
+  
+  
 
  ### Author and Creator
  
