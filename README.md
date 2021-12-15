@@ -5,13 +5,19 @@
 
 ### Will to live 1
 
-<img src="https://github.com/leeseomin/BTTG/blob/main/ART/15h.png" width="2000">    
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/1.png" width="2000">    
 
   <br/>  <br/> 
   
 
 
 
+### Will to live 2
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/2.png" width="2000">    
+
+  <br/>  <br/> 
+  
 
 
 
