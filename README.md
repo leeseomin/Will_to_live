@@ -57,6 +57,48 @@
 <img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/7.png" width="2000">    
 
   <br/>  <br/> 
+
+### Will to live 8
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/8.png" width="2000">    
+
+  <br/>  <br/> 
+
+### Will to live 9
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/9.png" width="2000">    
+
+  <br/>  <br/> 
+
+
+### Will to live 10
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/10.png" width="2000">    
+
+  <br/>  <br/> 
+
+### Will to live 11
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/11.png" width="2000">    
+
+  <br/>  <br/> 
+
+### Will to live 12
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/12.png" width="2000">    
+
+  <br/>  <br/> 
+  
+
+### Will to live 13
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/13.png" width="2000">    
+
+  <br/>  <br/> 
+  
+  
+  
+  
   
   
 
