@@ -45,6 +45,13 @@
 
 
 
+### 6-13 
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/6_13.png" width="2000">    
+
+  <br/>  <br/> 
+
+
 ### Will to live 6
 
 <img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/6.png" width="2000">    
