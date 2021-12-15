@@ -45,7 +45,7 @@
 
 
 
-### 6-13 
+### Will to live II 6-13 
 
 <img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/6_13.png" width="2000">    
 
