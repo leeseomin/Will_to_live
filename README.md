@@ -9,6 +9,13 @@
   <br/>  <br/> 
 
 
+### Will to live : Generative 1
+
+<img src="https://github.com/leeseomin/Will_to_live/blob/main/ART/generative1.png" width="2000">    
+
+  <br/>  <br/> 
+
+
 
 ### Will to live I 1-5
 
