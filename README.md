@@ -1,4 +1,6 @@
-# "Will to live" Art project :  In the gray universe, each "Will to live" shines like a star. 
+# "Will to live" Art project 
+
+(In the gray universe, each "Will to live" shines like a star)
 
 ### NFT marketplace
 
