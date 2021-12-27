@@ -1,5 +1,12 @@
 # "Will to live" Art project
 
+# In the gray universe, each "Will to live" shines like a star. 
+
+### NFT marketplace
+
+https://opensea.io/collection/willtolive
+
+  <br/>  <br/> 
 
 ### Will to live : The Kiss 
 
